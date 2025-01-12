@@ -1,0 +1,1 @@
+User requested an updated portfolio website for Kirti Ramtani. Profile image and chart visuals were added along with a refined color palette.
